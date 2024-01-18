@@ -113,3 +113,27 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Hershey's Kiss Cookies
+
+Ingredients:
+- 1 cup brown sugar
+- 1 cup white sugar
+- 8 tbsp butter
+- 1 egg
+- 2 cups peanut butter
+- 1 cup flour
+- 1 tbsp baking powder
+- 1 tbsp baking soda
+- 1 package of Hershey's Kisses
+
+Instructions:
+1. Mix the brown sugar, white sugar, and butter into one bowl. In the same bowl, add the egg and peanut butter.
+2. In a separate bowl, mix the dry ingredients until combined.
+3. Slowly mix the dry and wet ingredients.
+4. Chill in the fridge for an hour. Alternatively, put in the freezer for 10 minutes.
+5. roll into balls and roll them into sugar and place on tray.
+6. Press a fork onto the sides to create indents.
+7. Bake at 350° for 13 minutes.
+8. Place Hershey's Kisses on top and soon as they're taken out of the oven.
+
