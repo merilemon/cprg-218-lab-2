@@ -58,6 +58,7 @@ Ingredients:
 - 1 egg
 - 2 cloves garlic, minced
 - Salt and pepper to taste
+- 1/2 teaspon garlic powder
 - 1 jar (24 oz) spaghetti sauce
 
 Instructions:
@@ -74,6 +75,7 @@ Instructions:
 Ingredients:
 - 2 boneless, skinless chicken breasts
 - Salt and pepper to taste
+- 2 tbsp cumin
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
 - 4 hamburger buns
